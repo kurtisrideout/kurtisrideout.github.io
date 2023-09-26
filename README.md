@@ -1,3 +1,7 @@
 ![kurtisrideout](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/269030b5-4e7f-41bd-922b-4e5547dc2b8c)
 ![lost vessel 2 years front](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/d894d75c-f004-4051-8134-aa86e55808f9)
 ![lost vessel 2 years back](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/04a3ae84-107f-4ac8-8b27-fef6efcac96f)
+![king st flea front](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/2eb95d30-5ceb-4b4c-ba61-75c92085cb18)
+![king st flea back](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/2aefab42-f874-476d-a285-ebc46e066a1c)
+![goldie's karaoke](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/ffff3736-94c8-46ee-853f-dca61a6d2887)
+![psychedlic water launch](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/be0aa262-4b1f-4723-b014-cdb27a4fe6a2)
