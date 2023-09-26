@@ -1,1 +1,1 @@
-![alt text](https://github.com/kurtisrideout/kurtisrideout.github.io/blob/main/RESUME.png)
+![](https://github.com/kurtisrideout/kurtisrideout.github.io/blob/main/RESUME.png)
