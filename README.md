@@ -1,1 +1,1 @@
-![resume](https://github.com/kurtisrideout/kurtisrideout.github.io/blob/6ae8db1b3e60d24e35b36eccf140acd6d9936d91/resume.png)
+![resume](https://github.com/kurtisrideout/kurtisrideout.github.io/blob/0aa87ba90173ccac96d2646f10f76d520494b74b/resume.png)
