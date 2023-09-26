@@ -1,1 +1,1 @@
-![resume](https://kurtisrideout.github.io/resume)
+![resume](https://kurtisrideout.github.io/resume.png)
