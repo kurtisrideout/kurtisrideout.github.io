@@ -1,1 +1,1 @@
-![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle](https://github.com/kurtisrideout/kurtisrideout.github.io/blob/8230bdaa700d73c004a6555c3a2a33ac4ee292ee/resume.png)
+
