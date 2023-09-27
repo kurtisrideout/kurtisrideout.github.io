@@ -1,5 +1,4 @@
-![resume cover](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/e1b55f98-aee6-4f8b-a929-86cf04ef244f)
-![resume2](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/63300c1f-9220-47d5-b293-28ae7845a26d)
+
 ![lost vessel 2 years front](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/d894d75c-f004-4051-8134-aa86e55808f9)
 ![lost vessel 2 years back](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/04a3ae84-107f-4ac8-8b27-fef6efcac96f)
 ![king st flea front](https://github.com/kurtisrideout/kurtisrideout.github.io/assets/146127759/2eb95d30-5ceb-4b4c-ba61-75c92085cb18)
